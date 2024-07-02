@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on independent development
 - 📫 Reach me: https://www.instagram.com/misterlining/
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: Fk LGBT🌈!!!
+- ⚡ Fun fact: Free Palestine🇵🇸!!!
 
 <!---
 4xiaonangua/4xiaonangua is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
