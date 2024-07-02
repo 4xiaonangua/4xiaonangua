@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @4xiaonangua
 - 👀 I’m interested in React and Vue
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning new funny things I like
 - 💞️ I’m looking to collaborate on independent development
 - 📫 Reach me: https://www.instagram.com/misterlining/
 - 😄 Pronouns: Fk LGBT🌈!!!
